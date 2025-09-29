@@ -3,6 +3,6 @@
 ## introduction
 - students
 ## carrier
-- yeungnam univercity
+- Yeungnam Univercity
 ## link & email
 - ksosos54@gmail.com
