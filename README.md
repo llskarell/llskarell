@@ -1,4 +1,8 @@
 ## introduce
+- Min Seok Lee
 ## introduction
+- students
 ## carrier
-## link
+- yeungnam univercity
+## link & email
+- ksosos54@gmail.com
